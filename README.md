@@ -1,2 +1,4 @@
-download this Lucifer.zip and extract 
-you get main source file
+Check this our website
+
+
+https://indianhacker12.github.io/luciferAiBot/
